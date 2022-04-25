@@ -1,4 +1,4 @@
-Termos de serviço
+Termos de Serviço:
 
 Faça o que você quiser amigão.
 
